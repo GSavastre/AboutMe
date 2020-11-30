@@ -10,6 +10,9 @@
   
 - HODLing on 🚪
 
+I also have other interests, I've built with some friends a silly pickup rally car out of a VW Lupo and used it in a 12h endurance race!🏎️🏁.<br/>
+I also like drifting and have some boxing matches under my belt, let's say that I've managed to endure some tough situations 💪.
+
 ### Connect with me on
 
 [<img align="left" alt="GSavastre | LinkedIn" width=22px target="_blank" src="https://cdn.jsdelivr.net/npm/simple-icons@v4/icons/linkedin.svg"/>][linkedin]
